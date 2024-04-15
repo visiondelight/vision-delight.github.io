@@ -1,2 +1,1 @@
-# vision-delight.github.io
-Vision Delight a Shopify website expert, Shopify marketing, SEO expert and lot more...
+
